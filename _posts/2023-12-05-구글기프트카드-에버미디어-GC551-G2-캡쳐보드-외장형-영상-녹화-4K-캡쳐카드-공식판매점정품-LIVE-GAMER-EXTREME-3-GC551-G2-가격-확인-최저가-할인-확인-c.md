@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 에버미디어 GC551 G2 캡쳐보드 외장형 영상 녹화 4K 캡쳐카드 [공식판매점/정품], LIVE GAMER EXTREME 3 GC551 G2
 
-![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee9f/082fc682f04cbb391c5baf026e5e590780706a8e556b7adfdacd8ee7f114.jpg)
+[![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee9f/082fc682f04cbb391c5baf026e5e590780706a8e556b7adfdacd8ee7f114.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660056494&traceid=V0-153&itemId=20405286300&vendorItemId=87487535965)
 
 
 👍 [에버미디어 GC551 G2 캡쳐보드 외장형 영상 녹화 4K 캡쳐카드 [공식판매점/정품], LIVE GAMER EXTREME 3 GC551 G2 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660056494&traceid=V0-153&itemId=20405286300&vendorItemId=87487535965) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. [금액권] [실시간][ABC마트]기프트카드 5만원권
 
-![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/01d45f44-6650-41bb-848e-3171b1b197a8.jpg)
+[![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/01d45f44-6650-41bb-848e-3171b1b197a8.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000960617&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[금액권] [실시간][ABC마트]기프트카드 5만원권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000960617&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5만원 교환권
 
-![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/99b28cf1-fe13-4648-b9c4-2939e52ea485.jpg)
+[![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/99b28cf1-fe13-4648-b9c4-2939e52ea485.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3만원 교환권
 
-![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/ecc25bb9-884f-43b1-8933-8de4f072fd68.jpg)
+[![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/ecc25bb9-884f-43b1-8933-8de4f072fd68.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 아이디피 SMART51D 스마트51 카드프린터 회원증발급기, 칼라리본(YMCKO-250매) 2개 증정, 기본인쇄카드500장 증정 (상담필수)
 
-![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6214/84dabcb10f1f14efa0f865136e6406a323fc8207475ddeb2dc317f8f8deb.jpg)
+[![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6214/84dabcb10f1f14efa0f865136e6406a323fc8207475ddeb2dc317f8f8deb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7054938021&traceid=V0-153&itemId=17476833967&vendorItemId=84647839351)
 
 
 👍 [아이디피 SMART51D 스마트51 카드프린터 회원증발급기, 칼라리본(YMCKO-250매) 2개 증정, 기본인쇄카드500장 증정 (상담필수) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7054938021&traceid=V0-153&itemId=17476833967&vendorItemId=84647839351) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 아이디피 SMART51D 스마트51 카드프린터 자격증 발급기, 블랙리본(K-1200매) 2개 증정, 기본인쇄카드500장 증정 (상담필수)
 
-![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/997a/c3b4dde54e2e3d8b733fbad5b5f8883515f76175a48e97551bbff5922fda.jpg)
+[![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/997a/c3b4dde54e2e3d8b733fbad5b5f8883515f76175a48e97551bbff5922fda.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7054938131&traceid=V0-153&itemId=17476834566&vendorItemId=84647839629)
 
 
 👍 [아이디피 SMART51D 스마트51 카드프린터 자격증 발급기, 블랙리본(K-1200매) 2개 증정, 기본인쇄카드500장 증정 (상담필수) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7054938131&traceid=V0-153&itemId=17476834566&vendorItemId=84647839629) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. [금액권] [실시간][ABC마트]기프트카드 3만원권
 
-![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/9631ea98-40ff-4362-b778-b21b1d076596.jpg)
+[![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/9631ea98-40ff-4362-b778-b21b1d076596.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000960616&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[금액권] [실시간][ABC마트]기프트카드 3만원권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000960616&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. [전국] [상무초밥] e기프트카드 5만원권
 
-![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00225213/ffde1e8d-cf78-4dd7-83b6-ea5f8b8f19a5.jpg)
+[![구글기프트카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00225213/ffde1e8d-cf78-4dd7-83b6-ea5f8b8f19a5.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000626133&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [상무초밥] e기프트카드 5만원권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000626133&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 아삼아삼 갤럭시 Z플립 지폐 카드수납 퀼팅지갑 휴대폰 케이스
 
-![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9aa6/eaaa4a953c6d96a2f99adfe34c63ca5e92cc0462d97d1a864fb3e8dcce76.jpg)
+[![구글기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9aa6/eaaa4a953c6d96a2f99adfe34c63ca5e92cc0462d97d1a864fb3e8dcce76.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266514609&traceid=V0-153&itemId=18521340242&vendorItemId=82779100970)
 
 
 👍 [아삼아삼 갤럭시 Z플립 지폐 카드수납 퀼팅지갑 휴대폰 케이스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266514609&traceid=V0-153&itemId=18521340242&vendorItemId=82779100970) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 1만원 교환권
 
-![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/5d76063e-5bbd-4829-96fa-f063073b20b1.jpg)
+[![구글기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/5d76063e-5bbd-4829-96fa-f063073b20b1.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 1만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None) 👌 

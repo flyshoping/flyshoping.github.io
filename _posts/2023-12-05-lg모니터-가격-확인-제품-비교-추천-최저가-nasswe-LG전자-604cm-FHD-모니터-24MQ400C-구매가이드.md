@@ -27,7 +27,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 1. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)
+[![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428) 👌 
@@ -45,7 +45,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 2. LG전자 울트라기어 게이밍모니터, 60.4cm, 24GN60R
 
-![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/608989630069592-14b9c5d1-ae57-4e67-939c-6f0e466c401b.jpg)
+[![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/608989630069592-14b9c5d1-ae57-4e67-939c-6f0e466c401b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 60.4cm, 24GN60R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482) 👌 
@@ -63,7 +63,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 3. 디엑스 61cm FHD 모니터 LG ips 패널 컴퓨터 사무용 DX241HDMI, DX241HDMI(무결점)
 
-![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ffbe/3111c9b3b88ad5e3ae3203afbb2212cf19b37190f7f5a981f32f2a13fb19.jpg)
+[![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ffbe/3111c9b3b88ad5e3ae3203afbb2212cf19b37190f7f5a981f32f2a13fb19.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7656121364&traceid=V0-153&itemId=20384178650&vendorItemId=87479082254)
 
 
 👍 [디엑스 61cm FHD 모니터 LG ips 패널 컴퓨터 사무용 DX241HDMI, DX241HDMI(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7656121364&traceid=V0-153&itemId=20384178650&vendorItemId=87479082254) 👌 
@@ -81,7 +81,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 4. LG전자 울트라기어 게이밍모니터, 32GN50R
 
-![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2210153078869956-4e6090e6-96b6-4d1a-98c2-fcf3354a5f7d.jpg)
+[![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2210153078869956-4e6090e6-96b6-4d1a-98c2-fcf3354a5f7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 32GN50R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001) 👌 
@@ -99,7 +99,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 5. 무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, EKW24FMA11 (고객직접설치), 스탠드형, 고객직접설치
 
-![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efec/659ff15022e366cdbe5e19f3e3a1796654469e71da6a29f01c141626b06c.jpg)
+[![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efec/659ff15022e366cdbe5e19f3e3a1796654469e71da6a29f01c141626b06c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87855186449)
 
 
 👍 [무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, EKW24FMA11 (고객직접설치), 스탠드형, 고객직접설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87855186449) 👌 
@@ -117,7 +117,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 6. 주연테크 61cm FHD LED 모니터 100Hz, V24FX
 
-![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671362846218036-a332eace-549b-45ab-aa4b-3d67570da5c0.jpg)
+[![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671362846218036-a332eace-549b-45ab-aa4b-3d67570da5c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410658123&traceid=V0-153&itemId=19200319460&vendorItemId=86317684619)
 
 
 👍 [주연테크 61cm FHD LED 모니터 100Hz, V24FX <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410658123&traceid=V0-153&itemId=19200319460&vendorItemId=86317684619) 👌 
@@ -135,7 +135,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 7. LG전자 울트라와이드 모니터, 73cm, 29WP500
 
-![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4523133116460736-79150e99-5a7e-49e7-b943-08e61d73795f.jpg)
+[![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4523133116460736-79150e99-5a7e-49e7-b943-08e61d73795f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822)
 
 
 👍 [LG전자 울트라와이드 모니터, 73cm, 29WP500 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822) 👌 
@@ -153,7 +153,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 8. 디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반)
 
-![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)
+[![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413)
 
 
 👍 [디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413) 👌 
@@ -171,7 +171,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 9. LG전자 울트라기어 게이밍모니터, 68.5cm, 27GN60R
 
-![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/599166184361986-c6a0fcfa-dcc8-4163-a9a8-fc071451eb12.jpg)
+[![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/599166184361986-c6a0fcfa-dcc8-4163-a9a8-fc071451eb12.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 68.5cm, 27GN60R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322) 👌 
@@ -189,7 +189,7 @@ LG 모니터는 다양한 기능을 제공하여 사용자의 편의성을 높�
 
 ## 10. 어드밴스원 68.58cm FHD 100hz 2HDMI 모니터, MV27KL(무결점)
 
-![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299534897643261-c4d525f7-75e0-443d-8bdb-2c8663cad148.jpg)
+[![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299534897643261-c4d525f7-75e0-443d-8bdb-2c8663cad148.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105)
 
 
 👍 [어드밴스원 68.58cm FHD 100hz 2HDMI 모니터, MV27KL(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105) 👌 

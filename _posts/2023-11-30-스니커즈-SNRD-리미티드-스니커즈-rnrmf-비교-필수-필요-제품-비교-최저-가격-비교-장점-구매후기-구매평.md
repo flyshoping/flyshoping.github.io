@@ -33,7 +33,7 @@ pin: true
 
 ## 1. SNRD 리미티드 스니커즈
 
-![스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)
+[![스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348357&vendorItemId=4971303939)
 
 
 👍 [SNRD 리미티드 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348357&vendorItemId=4971303939) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. 스니커즈 픽앤믹스, 800g, 1개
 
-![스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/956f/6d6a5d9f7c8a412177a6b1d91cbb1f37fc9312b298ecbdc72161fdb62ff4.jpg)
+[![스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/956f/6d6a5d9f7c8a412177a6b1d91cbb1f37fc9312b298ecbdc72161fdb62ff4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2162108&traceid=V0-153&itemId=31535654&vendorItemId=81973231975)
 
 
 👍 [스니커즈 픽앤믹스, 800g, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2162108&traceid=V0-153&itemId=31535654&vendorItemId=81973231975) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. ANYOU 남성 베이직 운동화 캐주얼 스니커즈
 
-![스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e19b/ba8e0c2bccaa4805d1599652ddd49131865b2d61f44d1b6b98a983ed0bdf.jpeg)
+[![스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e19b/ba8e0c2bccaa4805d1599652ddd49131865b2d61f44d1b6b98a983ed0bdf.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527132933&traceid=V0-153&itemId=19754840566&vendorItemId=87223274889)
 
 
 👍 [ANYOU 남성 베이직 운동화 캐주얼 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527132933&traceid=V0-153&itemId=19754840566&vendorItemId=87223274889) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. SNRD 남녀공용 커플 캔버스 스니커즈 SN152
 
-![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5225813120002123-4a486369-c5ae-42b8-957b-f88b18915532.jpg)
+[![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5225813120002123-4a486369-c5ae-42b8-957b-f88b18915532.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=14464407830&vendorItemId=81707795904)
 
 
 👍 [SNRD 남녀공용 커플 캔버스 스니커즈 SN152 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=14464407830&vendorItemId=81707795904) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. SNRD 남녀공용 커플 캔버스 스니커즈 SN152
 
-![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3733524904146558-4b55afd5-66bb-4c2a-b8dc-f3790fafecdb.jpg)
+[![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3733524904146558-4b55afd5-66bb-4c2a-b8dc-f3790fafecdb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896546&vendorItemId=3855915822)
 
 
 👍 [SNRD 남녀공용 커플 캔버스 스니커즈 SN152 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896546&vendorItemId=3855915822) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 국내생산 수제화 독일군스니커즈/커플/남여공용 GP스니커즈
 
-![스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf59/4e029f5af44ca97ee7e99cdca014a944763f5c7b7024ac3939ba7a03f59a.jpg)
+[![스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf59/4e029f5af44ca97ee7e99cdca014a944763f5c7b7024ac3939ba7a03f59a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6602457019&traceid=V0-153&itemId=14940120111&vendorItemId=82165189467)
 
 
 👍 [국내생산 수제화 독일군스니커즈/커플/남여공용 GP스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6602457019&traceid=V0-153&itemId=14940120111&vendorItemId=82165189467) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. ANYOU 남성 베이직 운동화 캐주얼 스니커즈 남성 스니커즈 남자
 
-![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f99b/ea9525b1035bf419113783cbba09f4bd5fe7e29bc600729586c09eaa3961.jpg)
+[![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f99b/ea9525b1035bf419113783cbba09f4bd5fe7e29bc600729586c09eaa3961.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699834490&traceid=V0-153&itemId=20612611484&vendorItemId=87820870926)
 
 
 👍 [ANYOU 남성 베이직 운동화 캐주얼 스니커즈 남성 스니커즈 남자 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699834490&traceid=V0-153&itemId=20612611484&vendorItemId=87820870926) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. 한국마즈 스니커즈 땅콩 초콜릿, 51g, 48개
 
-![스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2000/d53483ae77cd50ebc0fd64acfe1e228fd1fe4a6e20ce591c89c041500cd5.jpg)
+[![스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2000/d53483ae77cd50ebc0fd64acfe1e228fd1fe4a6e20ce591c89c041500cd5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6822534230&traceid=V0-153&itemId=6866501298&vendorItemId=83915337281)
 
 
 👍 [한국마즈 스니커즈 땅콩 초콜릿, 51g, 48개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6822534230&traceid=V0-153&itemId=6866501298&vendorItemId=83915337281) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. CARTELO 크로커다일 남성 신발 스니커즈 클래식 캐쥬얼 EY6617
 
-![스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4dd2/c695e9e278ff4e20c4ddc5f8fa4fb980bee09cb5aff802c17edb75e7dcd7.png)
+[![스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4dd2/c695e9e278ff4e20c4ddc5f8fa4fb980bee09cb5aff802c17edb75e7dcd7.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505234379&traceid=V0-153&itemId=19654344347&vendorItemId=87612934067)
 
 
 👍 [CARTELO 크로커다일 남성 신발 스니커즈 클래식 캐쥬얼 EY6617 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505234379&traceid=V0-153&itemId=19654344347&vendorItemId=87612934067) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. ANYOU 남성용 운동화 신발 런닝화 캐주얼 스니커즈 신발
 
-![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a62/3b57bf08abf1dda72ff4e9ba5c7516093a7941ec1d11678f1d6363f30fd2.jpeg)
+[![스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a62/3b57bf08abf1dda72ff4e9ba5c7516093a7941ec1d11678f1d6363f30fd2.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7607740143&traceid=V0-153&itemId=20140959503&vendorItemId=87683133521)
 
 
 👍 [ANYOU 남성용 운동화 신발 런닝화 캐주얼 스니커즈 신발 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7607740143&traceid=V0-153&itemId=20140959503&vendorItemId=87683133521) 👌 

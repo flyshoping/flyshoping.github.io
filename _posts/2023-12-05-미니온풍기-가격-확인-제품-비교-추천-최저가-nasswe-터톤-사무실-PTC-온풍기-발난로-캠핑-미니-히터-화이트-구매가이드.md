@@ -28,7 +28,7 @@ pin: true
 
 ## 1. 터톤 사무실 PTC 온풍기 발난로 캠핑 미니 히터, 화이트
 
-![미니온풍기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/59ed/161b914edb639501e2a2b3d318ac687b194b7af677749913b1c9d08645a1.png)
+[![미니온풍기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/59ed/161b914edb639501e2a2b3d318ac687b194b7af677749913b1c9d08645a1.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704632648&traceid=V0-153&itemId=20637311279&vendorItemId=87809461991)
 
 
 👍 [터톤 사무실 PTC 온풍기 발난로 캠핑 미니 히터, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704632648&traceid=V0-153&itemId=20637311279&vendorItemId=87809461991) 👌 
@@ -46,7 +46,7 @@ pin: true
 
 ## 2. 홈플래닛 PTC 서큘레이터형 온풍기, NDQ1302B
 
-![미니온풍기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1836447230618200-b1a8f143-7009-461f-9269-2bc13f7bb976.jpg)
+[![미니온풍기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1836447230618200-b1a8f143-7009-461f-9269-2bc13f7bb976.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6795755235&traceid=V0-153&itemId=16023547089&vendorItemId=83227878016)
 
 
 👍 [홈플래닛 PTC 서큘레이터형 온풍기, NDQ1302B <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6795755235&traceid=V0-153&itemId=16023547089&vendorItemId=83227878016) 👌 
@@ -64,7 +64,7 @@ pin: true
 
 ## 3. 한일전기 미피 미니 온풍기, HEF-680MF, 화이트
 
-![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/20/11/5/e86ddeb1-738b-4564-b532-bb63ebc3eb96.jpg)
+[![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/20/11/5/e86ddeb1-738b-4564-b532-bb63ebc3eb96.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108664717&traceid=V0-153&itemId=11498034288&vendorItemId=87511215818)
 
 
 👍 [한일전기 미피 미니 온풍기, HEF-680MF, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108664717&traceid=V0-153&itemId=11498034288&vendorItemId=87511215818) 👌 
@@ -82,7 +82,7 @@ pin: true
 
 ## 4. 유니맥스 탁상용 미니온풍기 UMH-202W 미니히터, YH-08, 화이트
 
-![미니온풍기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eba7/b7d70cbf5dbfbee6d822494bf73659438c168d52e504886cf2dccb04d292.jpg)
+[![미니온풍기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eba7/b7d70cbf5dbfbee6d822494bf73659438c168d52e504886cf2dccb04d292.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6330701062&traceid=V0-153&itemId=13236921002&vendorItemId=83466245770)
 
 
 👍 [유니맥스 탁상용 미니온풍기 UMH-202W 미니히터, YH-08, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6330701062&traceid=V0-153&itemId=13236921002&vendorItemId=83466245770) 👌 
@@ -100,7 +100,7 @@ pin: true
 
 ## 5. Zeresi 테이블 히터 속열 온풍기 소형 발난로 PTC 발열, 포레스트 그린
 
-![미니온풍기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2bde/ac6deafbda0b358877c7b4cfeaf6fc5c1a6f1644b22f5a40fc8e886d7c6b.jpg)
+[![미니온풍기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2bde/ac6deafbda0b358877c7b4cfeaf6fc5c1a6f1644b22f5a40fc8e886d7c6b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650294528&traceid=V0-153&itemId=20353707138&vendorItemId=87464355682)
 
 
 👍 [Zeresi 테이블 히터 속열 온풍기 소형 발난로 PTC 발열, 포레스트 그린 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650294528&traceid=V0-153&itemId=20353707138&vendorItemId=87464355682) 👌 
@@ -118,7 +118,7 @@ pin: true
 
 ## 6. 퓨어코치 PTC 세라믹 전기 미니온풍기, 화이트, CH1000W
 
-![미니온풍기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1739358083508820-df690741-c2a7-448d-8cde-e397f9d5f357.jpg)
+[![미니온풍기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1739358083508820-df690741-c2a7-448d-8cde-e397f9d5f357.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2046727983&traceid=V0-153&itemId=3479498345&vendorItemId=70048956218)
 
 
 👍 [퓨어코치 PTC 세라믹 전기 미니온풍기, 화이트, CH1000W <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2046727983&traceid=V0-153&itemId=3479498345&vendorItemId=70048956218) 👌 
@@ -136,7 +136,7 @@ pin: true
 
 ## 7. Super-in 사무실 가정용 마카롱 PTC 탁상 미니온풍기 무음 전기 온풍기, 백색
 
-![미니온풍기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fec4/fd239a08b2f630d1a72348bfa5d108c7e49da323787373f6577ce256772c.jpg)
+[![미니온풍기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fec4/fd239a08b2f630d1a72348bfa5d108c7e49da323787373f6577ce256772c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744866686&traceid=V0-153&itemId=20846384266&vendorItemId=87913968444)
 
 
 👍 [Super-in 사무실 가정용 마카롱 PTC 탁상 미니온풍기 무음 전기 온풍기, 백색 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744866686&traceid=V0-153&itemId=20846384266&vendorItemId=87913968444) 👌 
@@ -154,7 +154,7 @@ pin: true
 
 ## 8. 엑토 PTC 미니 온풍기, HTR-01, 혼합색상
 
-![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/528645079305925-632562f3-eec0-4525-b3b5-dbbd95e0444c.jpg)
+[![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/528645079305925-632562f3-eec0-4525-b3b5-dbbd95e0444c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340682848&traceid=V0-153&itemId=1084532083&vendorItemId=5590031298)
 
 
 👍 [엑토 PTC 미니 온풍기, HTR-01, 혼합색상 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340682848&traceid=V0-153&itemId=1084532083&vendorItemId=5590031298) 👌 
@@ -172,7 +172,7 @@ pin: true
 
 ## 9. DDasomi 미니 온풍기 캠핑 저소음 온풍기 히터 가정용 DDasomi_GXZ-N9, Olive
 
-![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c016/3c5724caaccd39f0a1a70b092438c67afdaf761e09e4cde9e877cd7e576b.jpg)
+[![미니온풍기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c016/3c5724caaccd39f0a1a70b092438c67afdaf761e09e4cde9e877cd7e576b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7641914032&traceid=V0-153&itemId=20308169104&vendorItemId=87393962937)
 
 
 👍 [DDasomi 미니 온풍기 캠핑 저소음 온풍기 히터 가정용 DDasomi_GXZ-N9, Olive <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7641914032&traceid=V0-153&itemId=20308169104&vendorItemId=87393962937) 👌 
@@ -190,7 +190,7 @@ pin: true
 
 ## 10. 한일전기 PTC 미니 온풍기, HEF-101MINI, 화이트
 
-![미니온풍기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/21/11/3/902eefd8-4236-4dd0-876d-a3619d711c13.jpg)
+[![미니온풍기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/21/11/3/902eefd8-4236-4dd0-876d-a3619d711c13.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6890251222&traceid=V0-153&itemId=16539698901&vendorItemId=87840457509)
 
 
 👍 [한일전기 PTC 미니 온풍기, HEF-101MINI, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6890251222&traceid=V0-153&itemId=16539698901&vendorItemId=87840457509) 👌 

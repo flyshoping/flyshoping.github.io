@@ -37,7 +37,7 @@ pin: true
 
 ## 1. 삼성전자 갤럭시탭 A8 SM-X200, 실버, 64GB, Wi-Fi
 
-![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c16/dfdbc659ba768fab1c157dd029e0530a108fd4934f3ba4ebc7a3cdce9456.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c16/dfdbc659ba768fab1c157dd029e0530a108fd4934f3ba4ebc7a3cdce9456.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456083593&traceid=V0-153&itemId=19465981040&vendorItemId=86576357269)
 
 
 👍 [삼성전자 갤럭시탭 A8 SM-X200, 실버, 64GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456083593&traceid=V0-153&itemId=19465981040&vendorItemId=86576357269) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi+Cellular
 
-![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/7/9dfcf5a8-2be5-4445-a477-a8614b90bf23.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/7/9dfcf5a8-2be5-4445-a477-a8614b90bf23.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621582&vendorItemId=87611466156)
 
 
 👍 [삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi+Cellular <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621582&vendorItemId=87611466156) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 삼성 갤럭시 탭A8 10.5 LTE 64GB 가개통 미개봉 새제품 태블릿 SM-X205, 그레이
 
-![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/52aa/cc740e1ab0a6e4fd61c0ddff9526188a748ce5e1b8715317467586223be2.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/52aa/cc740e1ab0a6e4fd61c0ddff9526188a748ce5e1b8715317467586223be2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6685688889&traceid=V0-153&itemId=15432571620&vendorItemId=83304243328)
 
 
 👍 [삼성 갤럭시 탭A8 10.5 LTE 64GB 가개통 미개봉 새제품 태블릿 SM-X205, 그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6685688889&traceid=V0-153&itemId=15432571620&vendorItemId=83304243328) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. 삼성전자 갤럭시탭A8 SM-X200 Wi-Fi 64GB 삼성정품, 실버
 
-![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a244/ed6bb271a673a87bd13db3c257c1105a4ceaeb72e773df46fa4674d96470.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a244/ed6bb271a673a87bd13db3c257c1105a4ceaeb72e773df46fa4674d96470.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7330300740&traceid=V0-153&itemId=18817979846&vendorItemId=85802584964)
 
 
 👍 [삼성전자 갤럭시탭A8 SM-X200 Wi-Fi 64GB 삼성정품, 실버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7330300740&traceid=V0-153&itemId=18817979846&vendorItemId=85802584964) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. [A급리퍼] 삼성 갤럭시탭S8 WIFI 128G+펜 포함(색상 가능), 핑크
 
-![갤럭시탭a8 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/01cd/b9ea2ee6c0d9e76a40d4875b2f94617d00792a023f183b37928261e24833.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/01cd/b9ea2ee6c0d9e76a40d4875b2f94617d00792a023f183b37928261e24833.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721523578&traceid=V0-153&itemId=20724322360&vendorItemId=87464212934)
 
 
 👍 [[A급리퍼] 삼성 갤럭시탭S8 WIFI 128G+펜 포함(색상 가능), 핑크 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721523578&traceid=V0-153&itemId=20724322360&vendorItemId=87464212934) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. 삼성전자 갤럭시탭 S9 울트라, 그라파이트, 256GB, Wi-Fi
 
-![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/14/9/daf78f14-719c-4b6d-941a-9601b6cf9e4c.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/14/9/daf78f14-719c-4b6d-941a-9601b6cf9e4c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7524772241&traceid=V0-153&itemId=19743580117&vendorItemId=87258363731)
 
 
 👍 [삼성전자 갤럭시탭 S9 울트라, 그라파이트, 256GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7524772241&traceid=V0-153&itemId=19743580117&vendorItemId=87258363731) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 갤럭시탭 A8 10.5 에바폼 케이스 (+터치펜)
 
-![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b5d4/96fce342edd9033afa57f20582e318255288740bd4156e65e6a680b01391.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b5d4/96fce342edd9033afa57f20582e318255288740bd4156e65e6a680b01391.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7045307505&traceid=V0-153&itemId=17434217487&vendorItemId=84603114182)
 
 
 👍 [갤럭시탭 A8 10.5 에바폼 케이스 (+터치펜) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7045307505&traceid=V0-153&itemId=17434217487&vendorItemId=84603114182) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. 삼성전자 갤럭시탭 A8 SM-X200, 그레이, 64GB, Wi-Fi
 
-![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d180/b4b3e84282b83237dc39e0801f35b32dae072572db725b64557ac199f32b.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d180/b4b3e84282b83237dc39e0801f35b32dae072572db725b64557ac199f32b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456083593&traceid=V0-153&itemId=19422875706&vendorItemId=87477955113)
 
 
 👍 [삼성전자 갤럭시탭 A8 SM-X200, 그레이, 64GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456083593&traceid=V0-153&itemId=19422875706&vendorItemId=87477955113) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 삼성전자 갤럭시탭 S9, 베이지, 256GB, Wi-Fi
 
-![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/14/0/2d0b59d2-002c-463c-bdc2-3d9ab793c023.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/14/0/2d0b59d2-002c-463c-bdc2-3d9ab793c023.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7525563984&traceid=V0-153&itemId=19747092807&vendorItemId=87258362940)
 
 
 👍 [삼성전자 갤럭시탭 S9, 베이지, 256GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7525563984&traceid=V0-153&itemId=19747092807&vendorItemId=87258362940) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. 두스피릿 갤럭시탭 A8 10.5 플립 케이스 (+보호필름), 딥그린
 
-![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/976b/c8f1bfc12b5d4c12cdcebbc1345bcdc2259621b34adc8ccb7f8a4d847001.jpg)
+[![갤럭시탭a8 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/976b/c8f1bfc12b5d4c12cdcebbc1345bcdc2259621b34adc8ccb7f8a4d847001.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6820682798&traceid=V0-153&itemId=16164893642&vendorItemId=86885475399)
 
 
 👍 [두스피릿 갤럭시탭 A8 10.5 플립 케이스 (+보호필름), 딥그린 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6820682798&traceid=V0-153&itemId=16164893642&vendorItemId=86885475399) 👌 

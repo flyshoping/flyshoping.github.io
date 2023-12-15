@@ -21,7 +21,7 @@ pin: true
 
 ## 1. SNRD 리미티드 스니커즈
 
-![신발 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)
+[![신발 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348357&vendorItemId=4971303939)
 
 
 👍 [SNRD 리미티드 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348357&vendorItemId=4971303939) 👌 
@@ -39,7 +39,7 @@ pin: true
 
 ## 2. 유세븐 남성용 다이얼 운동화 트래킹화 DM907
 
-![신발 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4425677005866733-624958fc-437e-48fd-af19-143ace6d950b.jpg)
+[![신발 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4425677005866733-624958fc-437e-48fd-af19-143ace6d950b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5563046362&traceid=V0-153&itemId=8831093271&vendorItemId=76117895899)
 
 
 👍 [유세븐 남성용 다이얼 운동화 트래킹화 DM907 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5563046362&traceid=V0-153&itemId=8831093271&vendorItemId=76117895899) 👌 
@@ -57,7 +57,7 @@ pin: true
 
 ## 3. 유세븐 남여공용 생활방수 DM프루프 운동화
 
-![신발 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8325905943400802-83c6e1ed-05dc-4391-8c47-1d6fe662dbb1.jpg)
+[![신발 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8325905943400802-83c6e1ed-05dc-4391-8c47-1d6fe662dbb1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=189188149&traceid=V0-153&itemId=540171047&vendorItemId=4412849201)
 
 
 👍 [유세븐 남여공용 생활방수 DM프루프 운동화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=189188149&traceid=V0-153&itemId=540171047&vendorItemId=4412849201) 👌 
@@ -75,7 +75,7 @@ pin: true
 
 ## 4. 휠라 RGB 퓨즈 운동화 1RM01259D
 
-![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/wvfgkfba/9b2dffdbad18495bae4bb8718f47cfa2.jpg)
+[![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/wvfgkfba/9b2dffdbad18495bae4bb8718f47cfa2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6329093451&traceid=V0-153&itemId=13235347720&vendorItemId=80493415902)
 
 
 👍 [휠라 RGB 퓨즈 운동화 1RM01259D <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6329093451&traceid=V0-153&itemId=13235347720&vendorItemId=80493415902) 👌 
@@ -111,7 +111,7 @@ pin: true
 
 ## 6. 밸롭 티바트 니트 런닝화 BS02010001
 
-![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8332067606012946-5e6e786f-ede5-4d92-bbec-d222759f0b3d.jpg)
+[![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8332067606012946-5e6e786f-ede5-4d92-bbec-d222759f0b3d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1987199303&traceid=V0-153&itemId=3381211083&vendorItemId=71367870452)
 
 
 👍 [밸롭 티바트 니트 런닝화 BS02010001 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1987199303&traceid=V0-153&itemId=3381211083&vendorItemId=71367870452) 👌 
@@ -129,7 +129,7 @@ pin: true
 
 ## 7. ANYOU 남성 베이직 운동화 캐주얼 스니커즈
 
-![신발 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e19b/ba8e0c2bccaa4805d1599652ddd49131865b2d61f44d1b6b98a983ed0bdf.jpeg)
+[![신발 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e19b/ba8e0c2bccaa4805d1599652ddd49131865b2d61f44d1b6b98a983ed0bdf.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527132933&traceid=V0-153&itemId=19754840566&vendorItemId=87223274889)
 
 
 👍 [ANYOU 남성 베이직 운동화 캐주얼 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527132933&traceid=V0-153&itemId=19754840566&vendorItemId=87223274889) 👌 
@@ -147,7 +147,7 @@ pin: true
 
 ## 8. SNRD 런닝화 SN192
 
-![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7891735884251432-084e39bf-cc3e-4033-a858-04866ad092f3.jpg)
+[![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7891735884251432-084e39bf-cc3e-4033-a858-04866ad092f3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=140376536&traceid=V0-153&itemId=409052960&vendorItemId=4001885520)
 
 
 👍 [SNRD 런닝화 SN192 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=140376536&traceid=V0-153&itemId=409052960&vendorItemId=4001885520) 👌 
@@ -165,7 +165,7 @@ pin: true
 
 ## 9. SNRD 남녀공용 커플 캔버스 스니커즈 SN152
 
-![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/10/3855915729/b275e78a-a035-41e3-9581-fc0919dd7413.jpg)
+[![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/10/3855915729/b275e78a-a035-41e3-9581-fc0919dd7413.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896495&vendorItemId=3855915813)
 
 
 👍 [SNRD 남녀공용 커플 캔버스 스니커즈 SN152 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896495&vendorItemId=3855915813) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 10. SNRD 남녀공용 스니커즈 키높이 운동화 런닝화 SN588
 
-![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/08/18/20/8/2431fcc8-5e38-4e94-b287-2d30aea024e1.jpg)
+[![신발 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/08/18/20/8/2431fcc8-5e38-4e94-b287-2d30aea024e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1973952339&traceid=V0-153&itemId=3357271829&vendorItemId=71344022832)
 
 
 👍 [SNRD 남녀공용 스니커즈 키높이 운동화 런닝화 SN588 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1973952339&traceid=V0-153&itemId=3357271829&vendorItemId=71344022832) 👌 

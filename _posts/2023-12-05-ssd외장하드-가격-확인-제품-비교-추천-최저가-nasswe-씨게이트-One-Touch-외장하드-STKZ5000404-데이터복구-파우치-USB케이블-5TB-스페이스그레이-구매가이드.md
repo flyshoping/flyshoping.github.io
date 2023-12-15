@@ -31,7 +31,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 1. 씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이
 
-![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)
+[![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 
 👍 [씨게이트 One Touch 외장하드 STKZ5000404 데이터복구+ 파우치 +USB케이블, 5TB, 스페이스그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310) 👌 
@@ -49,7 +49,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 2. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -67,7 +67,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 3. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -85,7 +85,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 4. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -103,7 +103,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 5. 에이데이타 듀라블 외장하드 HD330 2TB, 블랙
 
-![ssd외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/10/14/17/0/e30057f0-e2d8-4ec8-acc3-6163281e1c12.jpg)
+[![ssd외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/10/14/17/0/e30057f0-e2d8-4ec8-acc3-6163281e1c12.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3915286565&vendorItemId=71899833039)
 
 
 👍 [에이데이타 듀라블 외장하드 HD330 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3915286565&vendorItemId=71899833039) 👌 
@@ -121,7 +121,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 6. 하이크비전 외장하드 HS-EHDD-T30 + 실리콘 커버, 1TB, 블루
 
-![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1144037576177915-0f9fb050-c925-4e45-a9bb-a2327ec61880.jpg)
+[![ssd외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1144037576177915-0f9fb050-c925-4e45-a9bb-a2327ec61880.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733)
 
 
 👍 [하이크비전 외장하드 HS-EHDD-T30 + 실리콘 커버, 1TB, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733) 👌 
@@ -139,7 +139,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 7. SK하이닉스 Beetle X31 DRAM 탑재 외장 SSD + 전용 케이스, SKHPU3-001T, 1024GB
 
-![ssd외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/17/14/6/53300211-1a13-4bb7-a1ba-a3c22e7d16cf.jpg)
+[![ssd외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/17/14/6/53300211-1a13-4bb7-a1ba-a3c22e7d16cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7340265913&traceid=V0-153&itemId=18864341882&vendorItemId=85993249804)
 
 
 👍 [SK하이닉스 Beetle X31 DRAM 탑재 외장 SSD + 전용 케이스, SKHPU3-001T, 1024GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7340265913&traceid=V0-153&itemId=18864341882&vendorItemId=85993249804) 👌 
@@ -157,7 +157,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 8. 마이크론 크루셜 외장 SSD X6, 1TB, 블랙
 
-![ssd외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6584734771281337-a7fd2936-2ddf-4310-a450-4e096e9c55fa.jpg)
+[![ssd외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6584734771281337-a7fd2936-2ddf-4310-a450-4e096e9c55fa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5054553268&traceid=V0-153&itemId=6821219856&vendorItemId=74113861376)
 
 
 👍 [마이크론 크루셜 외장 SSD X6, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5054553268&traceid=V0-153&itemId=6821219856&vendorItemId=74113861376) 👌 
@@ -175,7 +175,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 9. WD NEW My Passport Gen3 외장하드, 4TB, 레드
 
-![ssd외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a92/964ceea1f18c4b2517a1feca14420f9ab55e8faedbaca26aeac63cb5765d.jpg)
+[![ssd외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a92/964ceea1f18c4b2517a1feca14420f9ab55e8faedbaca26aeac63cb5765d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=9425947801&vendorItemId=86984923571)
 
 
 👍 [WD NEW My Passport Gen3 외장하드, 4TB, 레드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099842836&traceid=V0-153&itemId=9425947801&vendorItemId=86984923571) 👌 
@@ -193,7 +193,7 @@ SSD는 HDD와 달리 작동 시 소음이 거의 없습니다. 따라서 조용�
 
 ## 10. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB 몬터레이
 
-![ssd외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c3e/516cc38f20612795daa10268b015f294682bdd5ee51a424f8bc1654b2403.jpg)
+[![ssd외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c3e/516cc38f20612795daa10268b015f294682bdd5ee51a424f8bc1654b2403.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=19564812636&vendorItemId=86740096284)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB 몬터레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=19564812636&vendorItemId=86740096284) 👌 

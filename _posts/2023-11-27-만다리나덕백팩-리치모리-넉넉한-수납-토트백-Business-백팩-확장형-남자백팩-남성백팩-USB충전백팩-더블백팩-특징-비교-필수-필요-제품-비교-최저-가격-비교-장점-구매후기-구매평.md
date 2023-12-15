@@ -45,7 +45,7 @@ pin: true
 
 ## 1. 리치모리 넉넉한 수납 토트백 Business 백팩 확장형 남자백팩 남성백팩 USB충전백팩 더블백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4525/b8968180464dbed0aafb6bf9aea5ef97f5440dbe9c6d442d55f05fc0bd84.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4525/b8968180464dbed0aafb6bf9aea5ef97f5440dbe9c6d442d55f05fc0bd84.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650298905&traceid=V0-153&itemId=20353728733&vendorItemId=87391779180)
 
 
 👍 [리치모리 넉넉한 수납 토트백 Business 백팩 확장형 남자백팩 남성백팩 USB충전백팩 더블백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650298905&traceid=V0-153&itemId=20353728733&vendorItemId=87391779180) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 2. 아메리칸투어리스터 MILTON2 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448)
 
 
 👍 [아메리칸투어리스터 MILTON2 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 3. 만다리나덕 만다리나덕 HUNTER VCT33651 (black) 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0afc/c77ade74f6f2e5e725a24f73e50b4efece14519db4850124f952e659898e.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0afc/c77ade74f6f2e5e725a24f73e50b4efece14519db4850124f952e659898e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7449800906&traceid=V0-153&itemId=19391661971&vendorItemId=86503940946)
 
 
 👍 [만다리나덕 만다리나덕 HUNTER VCT33651 (black) 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7449800906&traceid=V0-153&itemId=19391661971&vendorItemId=86503940946) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 4. 만나리나덕 백팩 만다리나덕 학생 블랙 직장인 남성 헌터 Bag 캐주얼 경량, 01
 
-![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1956/c8d467f06abbc4b0a3c06c07fa39c00475bebcb51defd902c38da6ffa962.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1956/c8d467f06abbc4b0a3c06c07fa39c00475bebcb51defd902c38da6ffa962.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692014407&traceid=V0-153&itemId=20572110948&vendorItemId=87647531046)
 
 
 👍 [만나리나덕 백팩 만다리나덕 학생 블랙 직장인 남성 헌터 Bag 캐주얼 경량, 01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692014407&traceid=V0-153&itemId=20572110948&vendorItemId=87647531046) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 5. 1/1+1 가벼운 여성 백팩 다기능 캐주얼 백팩 나일론백팩 여행용 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3b63/26a54beb66c215c5b4e7f446099544cdea6f8860c998341f42881d262efb.png)
+[![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3b63/26a54beb66c215c5b4e7f446099544cdea6f8860c998341f42881d262efb.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725365015&traceid=V0-153&itemId=20744528123&vendorItemId=87814905254)
 
 
 👍 [1/1+1 가벼운 여성 백팩 다기능 캐주얼 백팩 나일론백팩 여행용 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725365015&traceid=V0-153&itemId=20744528123&vendorItemId=87814905254) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 6. 레드에셋 여성용 가죽 백팩 가벼운 여자 가방 대용량 여행용 여성 배낭
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/858c/d242f911f5d3b133b8a5385e42c411703f02f9094d038a008d0308e64113.png)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/858c/d242f911f5d3b133b8a5385e42c411703f02f9094d038a008d0308e64113.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7467838254&traceid=V0-153&itemId=19479735782&vendorItemId=86706378687)
 
 
 👍 [레드에셋 여성용 가죽 백팩 가벼운 여자 가방 대용량 여행용 여성 배낭 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7467838254&traceid=V0-153&itemId=19479735782&vendorItemId=86706378687) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 7. Zebeer 초경량 여성 백팩 가벼운 직장인 대학생 어머니 방수백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6441/b6e246d16c04546b7d0d25612fc369bf056b6f3dcd1b15338a8457aaaef6.png)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6441/b6e246d16c04546b7d0d25612fc369bf056b6f3dcd1b15338a8457aaaef6.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249387929&traceid=V0-153&itemId=18437081288&vendorItemId=86342140686)
 
 
 👍 [Zebeer 초경량 여성 백팩 가벼운 직장인 대학생 어머니 방수백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249387929&traceid=V0-153&itemId=18437081288&vendorItemId=86342140686) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 8. 만나리나덕 가방 여성용 시티 Black 백팩 캐주얼 만다리나덕 블랙 대학생 슬림 직장인, 01
 
-![만다리나덕백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fed3/19f5afe14c9ca18f6401f5f9a174791f7d3380b63bda591b2fe9a8715e83.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fed3/19f5afe14c9ca18f6401f5f9a174791f7d3380b63bda591b2fe9a8715e83.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692024721&traceid=V0-153&itemId=20572157721&vendorItemId=87647577447)
 
 
 👍 [만나리나덕 가방 여성용 시티 Black 백팩 캐주얼 만다리나덕 블랙 대학생 슬림 직장인, 01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692024721&traceid=V0-153&itemId=20572157721&vendorItemId=87647577447) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 9. 멜렛 루크 초경량 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6277/9aebd2ef585078c77aaeda2e4b5ae202dc71a87cb0f26201a07490cd4eaa.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6277/9aebd2ef585078c77aaeda2e4b5ae202dc71a87cb0f26201a07490cd4eaa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578830157&traceid=V0-153&itemId=20002244000&vendorItemId=87099326216)
 
 
 👍 [멜렛 루크 초경량 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578830157&traceid=V0-153&itemId=20002244000&vendorItemId=87099326216) 👌 
@@ -207,7 +207,7 @@ pin: true
 
 ## 10. 만다리나덕 MD20 백팩 여성용 캐주얼 가방 AK847QM
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0379/b8e9e61953174b42234af0c6550ed38ec3e84ea47d689be76de5e1b649ce.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0379/b8e9e61953174b42234af0c6550ed38ec3e84ea47d689be76de5e1b649ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7706218915&traceid=V0-153&itemId=20645264997&vendorItemId=87718732810)
 
 
 👍 [만다리나덕 MD20 백팩 여성용 캐주얼 가방 AK847QM <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7706218915&traceid=V0-153&itemId=20645264997&vendorItemId=87718732810) 👌 

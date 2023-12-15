@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 스케쳐스 남성용 스케치 에어 코트 운동화 SL0MPCDX12
 
-![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/18/5/e0b81edd-17d0-47c5-9449-8c23d1e6889d.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/18/5/e0b81edd-17d0-47c5-9449-8c23d1e6889d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7279748046&traceid=V0-153&itemId=18583438973&vendorItemId=85719984503)
 
 
 👍 [스케쳐스 남성용 스케치 에어 코트 운동화 SL0MPCDX12 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7279748046&traceid=V0-153&itemId=18583438973&vendorItemId=85719984503) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 스케쳐스 맥스쿠셔닝 엘리트 2.0 여성 운동화 러닝화 발바닥편한 데일리화 초경량 장시간보행 발볼편한 #블랙
 
-![스케쳐스운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/415b/8c2e615390bb6cd472370b1a4d6d38de8fa331d1531be7baeaeaad945e23.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/415b/8c2e615390bb6cd472370b1a4d6d38de8fa331d1531be7baeaeaad945e23.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6732892271&traceid=V0-153&itemId=15692201473&vendorItemId=86798602141)
 
 
 👍 [스케쳐스 맥스쿠셔닝 엘리트 2.0 여성 운동화 러닝화 발바닥편한 데일리화 초경량 장시간보행 발볼편한 #블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6732892271&traceid=V0-153&itemId=15692201473&vendorItemId=86798602141) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 스케쳐스 디 라이트 에어-쿨 메모리폼 여성용 운동화 896210-BKW
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bec3/e7e8c6c38cfc8713620cb62daef238829f92f54ec43bfa5bb1ba40cbdf5e.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bec3/e7e8c6c38cfc8713620cb62daef238829f92f54ec43bfa5bb1ba40cbdf5e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089693&traceid=V0-153&itemId=20068861232&vendorItemId=87164675485)
 
 
 👍 [스케쳐스 디 라이트 에어-쿨 메모리폼 여성용 운동화 896210-BKW <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089693&traceid=V0-153&itemId=20068861232&vendorItemId=87164675485) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 스케쳐스 여성용 고 런 패스트 운동화 SP0WRCDY111
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8437/6871298a8b3100d4c934ea33696caebed9068623a15eaa20aa39e9d2d37c.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8437/6871298a8b3100d4c934ea33696caebed9068623a15eaa20aa39e9d2d37c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7126358189&traceid=V0-153&itemId=17855036583&vendorItemId=87672541824)
 
 
 👍 [스케쳐스 여성용 고 런 패스트 운동화 SP0WRCDY111 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7126358189&traceid=V0-153&itemId=17855036583&vendorItemId=87672541824) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 스케쳐스 남성용 밥스 유니티 운동화 SL0MCCDY301
 
-![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/08/10/7/db3d13b4-70a1-4309-8c58-45c02979e1bd.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/08/10/7/db3d13b4-70a1-4309-8c58-45c02979e1bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7517938783&traceid=V0-153&itemId=19712220969&vendorItemId=86816559177)
 
 
 👍 [스케쳐스 남성용 밥스 유니티 운동화 SL0MCCDY301 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7517938783&traceid=V0-153&itemId=19712220969&vendorItemId=86816559177) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 스케쳐스 남성용 스케치에어 다이너마이트 운동화 SL0MP21Y062
 
-![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7f7/81be69c01f62567a6875fb37a777e92fd8522b40b159d64bbbf21c52fdbc.png)
+[![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7f7/81be69c01f62567a6875fb37a777e92fd8522b40b159d64bbbf21c52fdbc.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6087598511&traceid=V0-153&itemId=11324787548&vendorItemId=81938472960)
 
 
 👍 [스케쳐스 남성용 스케치에어 다이너마이트 운동화 SL0MP21Y062 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6087598511&traceid=V0-153&itemId=11324787548&vendorItemId=81938472960) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 보랏빛마을 스케쳐스 여성 아치핏 운동화 런닝화 149057(사은품 양말 증정)
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c22a/c8a80fbf2e480792a1e8222118cece73db599fecd8de118ce6314d01c33f.jpeg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c22a/c8a80fbf2e480792a1e8222118cece73db599fecd8de118ce6314d01c33f.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6650965074&traceid=V0-153&itemId=15239942479&vendorItemId=82535229012)
 
 
 👍 [보랏빛마을 스케쳐스 여성 아치핏 운동화 런닝화 149057(사은품 양말 증정) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6650965074&traceid=V0-153&itemId=15239942479&vendorItemId=82535229012) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 스케쳐스 퍼포먼스 고 런 400 여성용 런닝화 14804-BKW
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/615e/e60131072f15346911ae4f4f4859f877bd8afaa919eca814640098f0e6aa.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/615e/e60131072f15346911ae4f4f4859f877bd8afaa919eca814640098f0e6aa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089592&traceid=V0-153&itemId=20068860770&vendorItemId=87164674227)
 
 
 👍 [스케쳐스 퍼포먼스 고 런 400 여성용 런닝화 14804-BKW <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089592&traceid=V0-153&itemId=20068860770&vendorItemId=87164674227) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 스케쳐스 남성 초경량 장시간 발편한 볼넓고 부드러운촉감 일상생활 가볍게 착용 조깅 워킹 운동화 SP0_MP-CD_Y011
 
-![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f46f/8bffa23bc3b70514d09fedc7f898b94e89c9bd83d30725696cc421feef42.png)
+[![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f46f/8bffa23bc3b70514d09fedc7f898b94e89c9bd83d30725696cc421feef42.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7146219334&traceid=V0-153&itemId=17956206277&vendorItemId=85113630005)
 
 
 👍 [스케쳐스 남성 초경량 장시간 발편한 볼넓고 부드러운촉감 일상생활 가볍게 착용 조깅 워킹 운동화 SP0_MP-CD_Y011 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7146219334&traceid=V0-153&itemId=17956206277&vendorItemId=85113630005) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 스케쳐스 여아용 스너글 스니커즈 SK0GP22Y031
 
-![스케쳐스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/19/15/4/2be00b95-2d48-49b1-986c-ef787c8b29a4.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/19/15/4/2be00b95-2d48-49b1-986c-ef787c8b29a4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7565997193&traceid=V0-153&itemId=19943393114&vendorItemId=87502223768)
 
 
 👍 [스케쳐스 여아용 스너글 스니커즈 SK0GP22Y031 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7565997193&traceid=V0-153&itemId=19943393114&vendorItemId=87502223768) 👌 

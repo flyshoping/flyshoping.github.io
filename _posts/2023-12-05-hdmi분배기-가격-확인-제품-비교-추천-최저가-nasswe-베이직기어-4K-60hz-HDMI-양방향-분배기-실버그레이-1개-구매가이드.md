@@ -43,7 +43,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 1. 베이직기어 4K 60hz HDMI 양방향 분배기, 실버그레이, 1개
 
-![hdmi분배기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/drxpefkk/a00fd0ca61b544c1998a615f7ddccc4e.jpg)
+[![hdmi분배기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/drxpefkk/a00fd0ca61b544c1998a615f7ddccc4e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6130731566&traceid=V0-153&itemId=11689382972&vendorItemId=78963723068)
 
 
 👍 [베이직기어 4K 60hz HDMI 양방향 분배기, 실버그레이, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6130731566&traceid=V0-153&itemId=11689382972&vendorItemId=78963723068) 👌 
@@ -61,7 +61,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 2. 넥스트 이지넷 유비쿼터스 HDMI 1대2 모니터 분배기 NEXT-0102SPC, 본상품선택
 
-![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1211809537207357-542b7f9c-3191-4efd-a529-43b381121368.jpg)
+[![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1211809537207357-542b7f9c-3191-4efd-a529-43b381121368.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5950975180&traceid=V0-153&itemId=10637895734&vendorItemId=3576591619)
 
 
 👍 [넥스트 이지넷 유비쿼터스 HDMI 1대2 모니터 분배기 NEXT-0102SPC, 본상품선택 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5950975180&traceid=V0-153&itemId=10637895734&vendorItemId=3576591619) 👌 
@@ -79,7 +79,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 3. 넥시 4K 1:2 HDMI 분배기 2포트, NX-4K HDMI SPLITTER 2P
 
-![hdmi분배기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/07/10/4212878577/8c14722b-6b36-4670-a3d2-76affee55d2d.jpg)
+[![hdmi분배기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/07/10/4212878577/8c14722b-6b36-4670-a3d2-76affee55d2d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=168473355&traceid=V0-153&itemId=482235012&vendorItemId=4212878577)
 
 
 👍 [넥시 4K 1:2 HDMI 분배기 2포트, NX-4K HDMI SPLITTER 2P <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=168473355&traceid=V0-153&itemId=482235012&vendorItemId=4212878577) 👌 
@@ -97,7 +97,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 4. 넥스트 1대2 4K UHD HDMI 분배기 NEXT-502SP4K, 1개
 
-![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9342176421374-1064655d-6a9f-4c91-a722-ffc7995358f7.jpg)
+[![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9342176421374-1064655d-6a9f-4c91-a722-ffc7995358f7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1328306977&traceid=V0-153&itemId=2351904674&vendorItemId=70348405133)
 
 
 👍 [넥스트 1대2 4K UHD HDMI 분배기 NEXT-502SP4K, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1328306977&traceid=V0-153&itemId=2351904674&vendorItemId=70348405133) 👌 
@@ -115,7 +115,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 5. 티이스마트 HDMI 2.0 4K 60Hz 2포트 분배기, HSP0102A1U
 
-![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee4a/f5b39ed5cdcefd02e42cd8ac80ca55c671fa6180a3ac2a9023ba1041f5d5.jpg)
+[![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee4a/f5b39ed5cdcefd02e42cd8ac80ca55c671fa6180a3ac2a9023ba1041f5d5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410815990&traceid=V0-153&itemId=2447271110&vendorItemId=85801510163)
 
 
 👍 [티이스마트 HDMI 2.0 4K 60Hz 2포트 분배기, HSP0102A1U <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410815990&traceid=V0-153&itemId=2447271110&vendorItemId=85801510163) 👌 
@@ -133,7 +133,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 6. 티이스마트 HDMI 2.0 4K 60Hz 4포트 분배기, HSP0104A1U
 
-![hdmi분배기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f863/74125088a3e1899a43f891f5b6d03245b1a0c235ae634f5cc17aa14541a8.jpg)
+[![hdmi분배기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f863/74125088a3e1899a43f891f5b6d03245b1a0c235ae634f5cc17aa14541a8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410816310&traceid=V0-153&itemId=2447271518&vendorItemId=85801513076)
 
 
 👍 [티이스마트 HDMI 2.0 4K 60Hz 4포트 분배기, HSP0104A1U <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1410816310&traceid=V0-153&itemId=2447271518&vendorItemId=85801513076) 👌 
@@ -151,7 +151,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 7. 셀인스텍 4K HDMI 3TO1 케이블 일체형 선택기
 
-![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/xaqbkuex/611164bbfb964acd9040e96bab1fbbbf.jpg)
+[![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/xaqbkuex/611164bbfb964acd9040e96bab1fbbbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5499171144&traceid=V0-153&itemId=8538469397&vendorItemId=75825872906)
 
 
 👍 [셀인스텍 4K HDMI 3TO1 케이블 일체형 선택기 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5499171144&traceid=V0-153&itemId=8538469397&vendorItemId=75825872906) 👌 
@@ -169,7 +169,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 8. 엑토 8K HDMI 2.1 선택기 21 모니터 분배기 HDMI-10, 1개
 
-![hdmi분배기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/04/11/7/2913b132-2765-47fd-b2bd-3387a10a6207.jpg)
+[![hdmi분배기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/04/11/7/2913b132-2765-47fd-b2bd-3387a10a6207.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227716532&traceid=V0-153&itemId=18332171622&vendorItemId=85870166464)
 
 
 👍 [엑토 8K HDMI 2.1 선택기 21 모니터 분배기 HDMI-10, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227716532&traceid=V0-153&itemId=18332171622&vendorItemId=85870166464) 👌 
@@ -187,7 +187,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 9. 셀인스텍 HDMI SWITCH 3TO1 선택기 + 리모컨 세트, HS3TO1
 
-![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/10/10/3/7280c0c2-c275-41c2-8ec1-e4d6a76cc474.jpg)
+[![hdmi분배기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/10/10/3/7280c0c2-c275-41c2-8ec1-e4d6a76cc474.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2085831077&traceid=V0-153&itemId=3542980411&vendorItemId=71528950311)
 
 
 👍 [셀인스텍 HDMI SWITCH 3TO1 선택기 + 리모컨 세트, HS3TO1 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2085831077&traceid=V0-153&itemId=3542980411&vendorItemId=71528950311) 👌 
@@ -205,7 +205,7 @@ HDMI 분배기는 다양한 용도로 활용할 수 있는 유용한 장치입�
 
 ## 10. 넥시 HDMI 1:2 유전원 분배기 NX-4K0102SPM NX1009, 1개
 
-![hdmi분배기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/07/27/13/5/b96c4891-aaa1-41a9-b137-ae98d03f38b6.jpg)
+[![hdmi분배기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/07/27/13/5/b96c4891-aaa1-41a9-b137-ae98d03f38b6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1880126420&traceid=V0-153&itemId=3194901449&vendorItemId=71182320832)
 
 
 👍 [넥시 HDMI 1:2 유전원 분배기 NX-4K0102SPM NX1009, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1880126420&traceid=V0-153&itemId=3194901449&vendorItemId=71182320832) 👌 

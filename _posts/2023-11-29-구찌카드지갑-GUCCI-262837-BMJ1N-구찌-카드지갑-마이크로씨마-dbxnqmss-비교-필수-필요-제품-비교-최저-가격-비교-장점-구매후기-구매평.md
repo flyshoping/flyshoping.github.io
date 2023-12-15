@@ -31,7 +31,7 @@ pin: true
 
 ## 1. GUCCI 262837 BMJ1N 구찌 카드지갑 마이크로씨마
 
-![구찌카드지갑 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9c03/ee95367221d76bd3414fb77c2a15cfe54c825ccaa0811f0e7980375e1883.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9c03/ee95367221d76bd3414fb77c2a15cfe54c825ccaa0811f0e7980375e1883.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424991552&traceid=V0-153&itemId=13840326478&vendorItemId=81090442643)
 
 
 👍 [GUCCI 262837 BMJ1N 구찌 카드지갑 마이크로씨마 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424991552&traceid=V0-153&itemId=13840326478&vendorItemId=81090442643) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. [구찌] [GUCCI] 오피디아 GG 카드 케이스 523159 96IWG 8745
 
-![구찌카드지갑 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5ffe/5217a3ebd7136c52b7e0c3af3dcc460a4ecd6ae46e8def9f5cf88050c8be.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5ffe/5217a3ebd7136c52b7e0c3af3dcc460a4ecd6ae46e8def9f5cf88050c8be.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5569131897&traceid=V0-153&itemId=8862994731&vendorItemId=70577102821)
 
 
 👍 [[구찌] [GUCCI] 오피디아 GG 카드 케이스 523159 96IWG 8745 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5569131897&traceid=V0-153&itemId=8862994731&vendorItemId=70577102821) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 더퀴르 지폐수납 카드지갑 악어가죽 명품 포켓 오거나이저 남자 명함지갑 남성 선물
 
-![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e134/77e94d96b74eff96cd4dac18e806fa77bd7689b02b5fe6184a5ddb40fe38.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e134/77e94d96b74eff96cd4dac18e806fa77bd7689b02b5fe6184a5ddb40fe38.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7491065190&traceid=V0-153&itemId=19588345205&vendorItemId=86695744857)
 
 
 👍 [더퀴르 지폐수납 카드지갑 악어가죽 명품 포켓 오거나이저 남자 명함지갑 남성 선물 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7491065190&traceid=V0-153&itemId=19588345205&vendorItemId=86695744857) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 구찌 카드 지갑 473927 CWC1N 시그니처
 
-![구찌카드지갑 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d353/a366fc49a2ceb2413270fb05f906b8948172fe9b65485ef77c7152436512.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d353/a366fc49a2ceb2413270fb05f906b8948172fe9b65485ef77c7152436512.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714211679&traceid=V0-153&itemId=15597189085&vendorItemId=80316062124)
 
 
 👍 [구찌 카드 지갑 473927 CWC1N 시그니처 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714211679&traceid=V0-153&itemId=15597189085&vendorItemId=80316062124) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. [자스나로 BRO-6] 해외여행 카드지갑 여성반지갑 NFC 카드중복인식 방지특허
 
-![구찌카드지갑 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/72a1/95a061f4b9ed79da6a66ac262e288bc191818f2c71f896ec9ad19d4354dc.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/72a1/95a061f4b9ed79da6a66ac262e288bc191818f2c71f896ec9ad19d4354dc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7417970286&traceid=V0-153&itemId=19235790677&vendorItemId=86352199947)
 
 
 👍 [[자스나로 BRO-6] 해외여행 카드지갑 여성반지갑 NFC 카드중복인식 방지특허 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7417970286&traceid=V0-153&itemId=19235790677&vendorItemId=86352199947) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 익센트리 3단 빈티지 소가죽 작은 슬림 카드지갑 EX022 커피브라운
 
-![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bfde/42b483ba0d19d7b711e663bec154b34747fc22521bf34eb233a6350cc43e.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bfde/42b483ba0d19d7b711e663bec154b34747fc22521bf34eb233a6350cc43e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5279561124&traceid=V0-153&itemId=7549835286&vendorItemId=74708567853)
 
 
 👍 [익센트리 3단 빈티지 소가죽 작은 슬림 카드지갑 EX022 커피브라운 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5279561124&traceid=V0-153&itemId=7549835286&vendorItemId=74708567853) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 구찌 카드지갑 233166 CWC10 시그니처
 
-![구찌카드지갑 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f0a3/47c4e3c45b98e0bfed86211394c620fa8e9cafea6395899c4b62bbf14a4b.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f0a3/47c4e3c45b98e0bfed86211394c620fa8e9cafea6395899c4b62bbf14a4b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6304388049&traceid=V0-153&itemId=13053306362&vendorItemId=80316062077)
 
 
 👍 [구찌 카드지갑 233166 CWC10 시그니처 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6304388049&traceid=V0-153&itemId=13053306362&vendorItemId=80316062077) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. GUCCI 657588 금장/은장 구찌 카드지갑 마몬트 GG
 
-![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c4c/3c00889b6ad92783de7b891ea909459ebe378e0d3fc5b28e3044860b9425.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c4c/3c00889b6ad92783de7b891ea909459ebe378e0d3fc5b28e3044860b9425.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424998893&traceid=V0-153&itemId=13840376809&vendorItemId=81090492184)
 
 
 👍 [GUCCI 657588 금장/은장 구찌 카드지갑 마몬트 GG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424998893&traceid=V0-153&itemId=13840376809&vendorItemId=81090492184) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. LOHA 여성 양가죽 슬림 카드지갑 B627
 
-![구찌카드지갑 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f9c/769a49a0ea489b5365633d7af54b80c15f1d65797429380ee5e2697741d7.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f9c/769a49a0ea489b5365633d7af54b80c15f1d65797429380ee5e2697741d7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6839055257&traceid=V0-153&itemId=16257125333&vendorItemId=85538149847)
 
 
 👍 [LOHA 여성 양가죽 슬림 카드지갑 B627 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6839055257&traceid=V0-153&itemId=16257125333&vendorItemId=85538149847) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. (여주프리미엄아울렛/ AS가능) 구찌 마이크로시마 남성 카드홀더 카드지갑 262837
 
-![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2362/2528bd607393aedf660da1a2d08167d4833d99c3e488494f1f9266cd2100.jpg)
+[![구찌카드지갑 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2362/2528bd607393aedf660da1a2d08167d4833d99c3e488494f1f9266cd2100.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7414758526&traceid=V0-153&itemId=19220260744&vendorItemId=86337070712)
 
 
 👍 [(여주프리미엄아울렛/ AS가능) 구찌 마이크로시마 남성 카드홀더 카드지갑 262837 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7414758526&traceid=V0-153&itemId=19220260744&vendorItemId=86337070712) 👌 

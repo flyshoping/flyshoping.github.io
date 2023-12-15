@@ -29,7 +29,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 1. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -47,7 +47,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 2. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -65,7 +65,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 3. 하이크비전 외장 SSD T200N, 1TB, 블랙
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/185517043864110-5785b968-45a6-4707-a9c1-ffde9d82e9b2.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/185517043864110-5785b968-45a6-4707-a9c1-ffde9d82e9b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899325276&traceid=V0-153&itemId=16588655608&vendorItemId=83773791564)
 
 
 👍 [하이크비전 외장 SSD T200N, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899325276&traceid=V0-153&itemId=16588655608&vendorItemId=83773791564) 👌 
@@ -83,7 +83,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 4. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -101,7 +101,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 5. 하이크비전 외장하드 HS-EHDD-T30 + 실리콘 커버, 1TB, 블루
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1144037576177915-0f9fb050-c925-4e45-a9bb-a2327ec61880.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1144037576177915-0f9fb050-c925-4e45-a9bb-a2327ec61880.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733)
 
 
 👍 [하이크비전 외장하드 HS-EHDD-T30 + 실리콘 커버, 1TB, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746489&vendorItemId=83773881733) 👌 
@@ -119,7 +119,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 6. 쏘 맥북 에어 프로 아이맥 전용 SSD NVME 쏘드라이브 업그레이드, SO Drive_1TB, 1TB
 
-![ssd1tb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e826/0560ac919dcdcc89792b77023b6fca769910cd98600c7f5b604871ddd184.jpg)
+[![ssd1tb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e826/0560ac919dcdcc89792b77023b6fca769910cd98600c7f5b604871ddd184.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6235346763&traceid=V0-153&itemId=12554363613&vendorItemId=86480566303)
 
 
 👍 [쏘 맥북 에어 프로 아이맥 전용 SSD NVME 쏘드라이브 업그레이드, SO Drive_1TB, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6235346763&traceid=V0-153&itemId=12554363613&vendorItemId=86480566303) 👌 
@@ -137,7 +137,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 7. 이메이션 SSD, C321, 1TB
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7de6/0ddb4499070070d6239ed98c702ebea4fb7b97b880c7cb98e677a5f195fd.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7de6/0ddb4499070070d6239ed98c702ebea4fb7b97b880c7cb98e677a5f195fd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655)
 
 
 👍 [이메이션 SSD, C321, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655) 👌 
@@ -155,7 +155,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 8. 크루셜 마이크론 Crucial BX500 SSD, CT1000BX500SSD1, 1TB
 
-![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/02/28/14/8/69d87008-01a4-4799-a88b-30c28e51cbe6.jpg)
+[![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/02/28/14/8/69d87008-01a4-4799-a88b-30c28e51cbe6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1309824315&traceid=V0-153&itemId=2326355746&vendorItemId=70322985909)
 
 
 👍 [크루셜 마이크론 Crucial BX500 SSD, CT1000BX500SSD1, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1309824315&traceid=V0-153&itemId=2326355746&vendorItemId=70322985909) 👌 
@@ -173,7 +173,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 9. 에이데이타 외장하드 HV620S 1TB AHV620-1TU3-CBK, 블랙
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/24/3485373058/a5d15896-ef56-4014-aa3f-b4a9c5fa9c3e.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/24/3485373058/a5d15896-ef56-4014-aa3f-b4a9c5fa9c3e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=59340200&traceid=V0-153&itemId=204796940&vendorItemId=3485373058)
 
 
 👍 [에이데이타 외장하드 HV620S 1TB AHV620-1TU3-CBK, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=59340200&traceid=V0-153&itemId=204796940&vendorItemId=3485373058) 👌 
@@ -191,7 +191,7 @@ SSD 1TB는 다양한 장점을 갖춘 저장 장치입니다. 따라서 위와 �
 
 ## 10. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 네이비
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ac47/f8a9a87f748a2d81112f729c7771b9c7b72f6bf232a276e8e041f255ff8c.png)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ac47/f8a9a87f748a2d81112f729c7771b9c7b72f6bf232a276e8e041f255ff8c.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=15063608041&vendorItemId=82223045059)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 네이비 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=15063608041&vendorItemId=82223045059) 👌 

@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 님봇 Niimbot D11 네임스티커 라벨프린터, D11화이트, 1개
 
-![라벨프린터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea5d/7515995fa1ff68f833da5e42d8a9ab645d78d2e2085d3dd10bc4f3664385.png)
+[![라벨프린터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea5d/7515995fa1ff68f833da5e42d8a9ab645d78d2e2085d3dd10bc4f3664385.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6727099783&traceid=V0-153&itemId=13858551182&vendorItemId=84834170441)
 
 
 👍 [님봇 Niimbot D11 네임스티커 라벨프린터, D11화이트, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6727099783&traceid=V0-153&itemId=13858551182&vendorItemId=84834170441) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 엡손 라벨프린터기 LW-K200BL, 혼합색상, 1개
 
-![라벨프린터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1067411491265758-3e728c42-36b8-492b-aa28-4ecb968dd8fe.jpg)
+[![라벨프린터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1067411491265758-3e728c42-36b8-492b-aa28-4ecb968dd8fe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6147707901&traceid=V0-153&itemId=11842535636&vendorItemId=3375469601)
 
 
 👍 [엡손 라벨프린터기 LW-K200BL, 혼합색상, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6147707901&traceid=V0-153&itemId=11842535636&vendorItemId=3375469601) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. Niimbot D11 네임스티커 라벨프린터 라벨기(라벨지 1개 포함), D11민트, 화이트12x22
 
-![라벨프린터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8532/faf755a73b84fdc09964cd1288070d75da1e1c52b9ccd8bf06dff22739cc.png)
+[![라벨프린터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8532/faf755a73b84fdc09964cd1288070d75da1e1c52b9ccd8bf06dff22739cc.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5519999291&traceid=V0-153&itemId=8630715920&vendorItemId=75917939286)
 
 
 👍 [Niimbot D11 네임스티커 라벨프린터 라벨기(라벨지 1개 포함), D11민트, 화이트12x22 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5519999291&traceid=V0-153&itemId=8630715920&vendorItemId=75917939286) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 님봇 Niimbot B21 네임스티커 라벨프린터, B21그린, 1개
 
-![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bca4/e7545a034ddfac4b8c8a0cb3338c6cf7d53bbfd5e94cb416018f1796683f.png)
+[![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bca4/e7545a034ddfac4b8c8a0cb3338c6cf7d53bbfd5e94cb416018f1796683f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7396102229&traceid=V0-153&itemId=19132613920&vendorItemId=81121419076)
 
 
 👍 [님봇 Niimbot B21 네임스티커 라벨프린터, B21그린, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7396102229&traceid=V0-153&itemId=19132613920&vendorItemId=81121419076) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. NIIMBOT 라벨프린터 D11 네임스티커 휴대용 무선 라벨기, 1개, 화이트기본라벨
 
-![라벨프린터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1ee7/ac5ffaa11a2a2776b1a97d280260dbfd643f79a68b2af0c83ee5bfd2817b.jpg)
+[![라벨프린터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1ee7/ac5ffaa11a2a2776b1a97d280260dbfd643f79a68b2af0c83ee5bfd2817b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7738070158&traceid=V0-153&itemId=20811528591&vendorItemId=87880366057)
 
 
 👍 [NIIMBOT 라벨프린터 D11 네임스티커 휴대용 무선 라벨기, 1개, 화이트기본라벨 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7738070158&traceid=V0-153&itemId=20811528591&vendorItemId=87880366057) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 부라더 PC용 라벨 프린터, PT-P700, 1개
 
-![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/06/12/3156404789/9509b890-7590-4797-a47c-480167899a0b.jpg)
+[![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/06/12/3156404789/9509b890-7590-4797-a47c-480167899a0b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=23195995&traceid=V0-153&itemId=90217606&vendorItemId=3156404789)
 
 
 👍 [부라더 PC용 라벨 프린터, PT-P700, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=23195995&traceid=V0-153&itemId=90217606&vendorItemId=3156404789) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. DS 무선 감열식 미니 라벨프린터 휴대용 라벨지 2개 포함, 화이트
 
-![라벨프린터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ff1a/43a5e42c9772a947ae77ba2528767578aea1f449048d6e1a6509dfd5899e.jpg)
+[![라벨프린터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ff1a/43a5e42c9772a947ae77ba2528767578aea1f449048d6e1a6509dfd5899e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6885814807&traceid=V0-153&itemId=16515506985&vendorItemId=84131178456)
 
 
 👍 [DS 무선 감열식 미니 라벨프린터 휴대용 라벨지 2개 포함, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6885814807&traceid=V0-153&itemId=16515506985&vendorItemId=84131178456) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 엡손 리락쿠마 라벨 프린터, LW-H200RK, 1개
 
-![라벨프린터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/01/24/3040127611/8a8da503-679b-4ac2-8ef3-4fc86b37e784.jpg)
+[![라벨프린터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/01/24/3040127611/8a8da503-679b-4ac2-8ef3-4fc86b37e784.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6057881&traceid=V0-153&itemId=27130812&vendorItemId=3040127611)
 
 
 👍 [엡손 리락쿠마 라벨 프린터, LW-H200RK, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6057881&traceid=V0-153&itemId=27130812&vendorItemId=3040127611) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 브라더 라벨프린터, 1개, PT-P910BT
 
-![라벨프린터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2193735385730661-91d8e1fb-7ab9-4ee5-9c22-eabb6ce59a70.jpg)
+[![라벨프린터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2193735385730661-91d8e1fb-7ab9-4ee5-9c22-eabb6ce59a70.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6776405258&traceid=V0-153&itemId=15923789565&vendorItemId=83131036051)
 
 
 👍 [브라더 라벨프린터, 1개, PT-P910BT <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6776405258&traceid=V0-153&itemId=15923789565&vendorItemId=83131036051) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 부라더 휴대용 라벨 프린터, PT-H110PK, 1개
 
-![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2427304377168858-d01bc659-a16c-4c34-9446-6a4230e11d68.jpg)
+[![라벨프린터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2427304377168858-d01bc659-a16c-4c34-9446-6a4230e11d68.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=124984480&traceid=V0-153&itemId=369769688&vendorItemId=3153327178)
 
 
 👍 [부라더 휴대용 라벨 프린터, PT-H110PK, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=124984480&traceid=V0-153&itemId=369769688&vendorItemId=3153327178) 👌 
